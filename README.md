@@ -5,4 +5,4 @@
 
 ![전신](https://user-images.githubusercontent.com/111984910/189945890-9747949f-8cfc-4649-8dba-d47e763e1a4d.png)
 
-
+![N_전신](https://user-images.githubusercontent.com/111984910/189947522-544b6ca2-61ca-4275-b79d-6f3ccddaa107.png)
