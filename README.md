@@ -4,3 +4,5 @@
 ![KakaoTalk_20220913_030546339](https://user-images.githubusercontent.com/111984910/189944963-23a30d4f-64ca-49f8-b817-67a48dabcaed.png)
 
 ![전신](https://user-images.githubusercontent.com/111984910/189945890-9747949f-8cfc-4649-8dba-d47e763e1a4d.png)
+
+![N_전신](https://user-images.githubusercontent.com/111984910/189946617-bbe89ed4-859d-4b96-9c90-2e84daa4d40d.png)
